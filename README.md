@@ -6,6 +6,8 @@ my main fandoms are ninjago, the maze runner, the hunger games, lego monkie kid 
 
 (but i do love a lot of other movies like fantastic mr fox, i/atsv and fight club)
 
+i love roblox im a royale high queen (+ michaels zombies, flicker)
+
 i am wuh luh wuh (sapphic👅)
 
 yayyy 
