@@ -1,6 +1,6 @@
 hii !!!! im annaaaa
 
-i love chappell roan, lana del rey, clairo, beabadoobee cigarettes after sex, alex g and gigi perez
+i love chappell roan, lana del rey, clairo, beabadoobee cigarettes after sex, alex g,  big thief/adrianne lenker and gigi perez
 
 my main fandoms are ninjago, the maze runner, the hunger games, lego monkie kid and arcane !!
 
